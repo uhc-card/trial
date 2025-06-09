@@ -1,1 +1,0 @@
-# Mcafee.com/activate
