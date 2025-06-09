@@ -1,1 +1,1 @@
-# trial
+# Mcafee.com/activate
